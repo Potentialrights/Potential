@@ -1,2 +1,0 @@
-# Potential
-New World
